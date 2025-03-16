@@ -1,7 +1,7 @@
 ## Oi, eu sou Wemerson Roberto ✌️
 
-- 🌱 Estudo Ciência da Computação
-- 💬 Pergunte-me sobre livros, doces e K-pop
+- 🌱 Perdido, mas com carisma
+- 💬 Pergunte-me sobre livros e K-pop
 - 📫 Contate-me pelo e-mail: wrmt@hotmail.com
 - 😄 Meus pronomes são: ele/dele
 - 🌈 Sou bissexual
